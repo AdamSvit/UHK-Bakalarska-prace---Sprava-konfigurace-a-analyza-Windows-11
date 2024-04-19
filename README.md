@@ -1,0 +1,1 @@
+# UHK-Bakalarska-prace---Sprava-konfigurace-a-analyza-Windows-11
